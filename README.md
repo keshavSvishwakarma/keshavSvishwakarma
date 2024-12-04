@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **vishwakarmakeshav22@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1QlfDqBxYCQ18JbhPw-M48zKcRMfgB8CS/view?usp=drive_link](https://drive.google.com/file/d/1QlfDqBxYCQ18JbhPw-M48zKcRMfgB8CS/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1QlfDqBxYCQ18JbhPw-M48zKcRMfgB8CS/view?usp=drive_link](https://drive.google.com/file/d/1vfUP4koiN_z3MBmE6iokxNnuVmdijI-G/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
